@@ -1,2 +1,0 @@
-# Birthday
-Sanskriti
